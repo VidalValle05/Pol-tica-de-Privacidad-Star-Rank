@@ -112,7 +112,7 @@ Podemos actualizar ocasionalmente esta Política de Privacidad. Notificaremos ca
 
 Si tienes dudas sobre esta Política de Privacidad, puedes contactarnos en:
 
-📧 **Correo:** [soporte.starrank@gmail.com](mailto:soporte.starrank@gmail.com)
+📧 **Correo:** (starrank66@gmail.com)
 
 ---
 
